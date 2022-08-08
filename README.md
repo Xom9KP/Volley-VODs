@@ -18,3 +18,13 @@ ____
 
 https://www.youtube.com/watch?v=kQDdiXOqnuE
 ____
+
+## 30.07
+
+https://www.youtube.com/watch?v=Qdx8J48DEyQ
+____
+
+## 02.08
+
+https://www.youtube.com/watch?v=_dAGgH7ZTGw
+____
